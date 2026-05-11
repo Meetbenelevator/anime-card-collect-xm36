@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for survive lava for brainrots is the best survive lava for brainrots Script, featuring silent aim and auto-upgrade. Safe and
 
 
 
